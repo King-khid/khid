@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **thompsonkingsleyfynn@gmail.com**
 
-- ⚡ Fun fact **I speak to computers more than i speak to human beings... and they listen**
+- ⚡ Fun fact **I speak to computers more than i speak to human beings... and they listen.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
